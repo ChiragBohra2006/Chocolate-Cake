@@ -1,1 +1,1 @@
-This recipe is of a chocolate cake which could be made easily by mixing some stuffs and flavors of luscious chocolate! 
+This recipe is of a chocolate cake which could be made easily by mixing some flavors of luscious chocolate! 
